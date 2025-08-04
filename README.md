@@ -48,7 +48,6 @@ Games
 - Indigo Park
 - Garten of Banban
 - Pony Town
-- Ashes Town
 <br/>
 
 Anime 
@@ -74,7 +73,6 @@ Indie Animations/Others
 - Alien Stage (partly)
 - K-Pop Demon Hunters
 - My Little Pony: Friendship is Magic
-- Sofia The First
 - Miraculous Ladybug
 - Alan Becker, AvA/AvM
 <br/>
@@ -87,6 +85,7 @@ $${\color{cyan}Fave \space artist/s}$$:
 - Tobu
 - Black Gryph0n, Gabe Brown
 - tnbee
+- HoyoMix
 - The Living Tombstone
 - Owl City
 - Twenty-one Pilots
