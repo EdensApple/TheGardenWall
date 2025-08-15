@@ -19,7 +19,7 @@ Read before you Interact:
 - 《 Mentally neutral chaotic and silly, unless I vibe with you 》
 - 《 Dry to talk to unless I've talked to you before or I connect with your interests with mine's 》
 - 《 If I don't sit with you that means I don't know you personally ( no offense ) or I ( or you ) don't have a 'c+h' tag 》
-- 《 Usually AFK or Semi-AFK on PT due to watching YT, just whisper me ( compliments are okay too ) I have cos/skins that says I'm AFK/Semi-AFK 》
+- 《 Usually AFK or Semi-AFK on PT due to watching YT,  just whisper me ( compliments are okay too ) I have cos/skins that says I'm AFK/Semi-AFK 》
 - 《 I love doing cos/skins similar with friend's particular interests, if that ain't you, then please don't ask about matching w/ me 》
 - 《I particularly don't mind minors, I'm kinda childish, so what?  ( I have friends that are younger than me, mainly around 16-19 ) 》
 - 《 If you're A, Z, Z , V and D, then I usually sit with them ( my friends ) 》
