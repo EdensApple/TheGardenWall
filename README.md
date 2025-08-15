@@ -11,6 +11,22 @@ $${\color{fuchsia}Like/s}$$:
 - ***Kaveh and Special Week***, Drawing, Gaming, Music, EDM genre, Cookies, Cookies and Cream Ice Cream, Galaxy Aesthetic, the Moon and the Stars, YouTubers, EN/JP VA enthusiast
 <br/>
 
+$${\color{silver}Dislike/s}$$: 
+Toxicity, ERP's, and then Life in general/pos
+<br/>
+
+Read before you Interact:
+- | Mentally neutral chaotic and silly, unless I vibe with you |
+- | Dry to talk to unless I've talked to you before or I connect with your interests with mine's |
+- | If I don't sit with you that means I don't know you personally ( no offense ) or I ( or you ) don't have a 'c+h' tag |
+- | Usually AFK or Semi-AFK on PT due to watching YT, just whisper me ( compliments are okay too ) I have cos/skins that says I'm  AFK/Semi-AFK |
+- | I love doing cos/skins similar with friend's particular interests, if that ain't you, then please don't ask about matching w/ me|
+- | I particularly don't mind minors, I'm kinda childish, so what?  ( I have friends that are younger than me, mainly around 16-19 ) |
+- n
+- h
+
+
+
 $${\color{aqua}Fave \space YouTubers/VTubers}$$:
 - Markiplier
 - Jacksepticeye
@@ -60,6 +76,7 @@ Anime
 - Yakuza's Guide to Babysitting
 - Ouran Highschool Host Club
 - SerVamp
+- Black Butler
 - A3!: Act! Addict! Actors!
 - Shinigami Bocchan to Kuro Maid/The Duke of Death and his Maid
 - Hypnosis Microphone/HypMic
@@ -96,11 +113,3 @@ $${\color{cyan}Fave \space artist/s}$$:
 - One Direction
 - ONE OK ROCK
 <br/>
-
-$${\color{silver}Dislike/s}$$: 
-Toxicity, ERP's, and then Life in general/pos
-<br/>
-
-- | Mentally neutral chaotic and silly, unless I vibe with you |
-- | Dry to talk to unless I've talked to you before or I connect with your interests with mine's |
-
